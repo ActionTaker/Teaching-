@@ -7,3 +7,4 @@ Week 2-1: https://youtu.be/UMMcVmb8Rwc
 Week 2-2: https://youtu.be/FovEbMWKCGU
 
 Week 3-1: https://youtu.be/rToRDZ9ZH8I
+Week 3-2: https://youtu.be/aw4qo2tDycA
