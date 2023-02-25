@@ -15,3 +15,6 @@ Week 4-1: https://youtu.be/v3BUVGZA8jk
 Week 5-1: https://youtu.be/8e0htsQhW98
 
 Week 6-1 : https://youtu.be/ldPHMPtmJBs
+W
+
+Week 7: https://youtu.be/KvzRs7fj4eI
