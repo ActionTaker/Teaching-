@@ -18,3 +18,5 @@ Week 6-1 : https://youtu.be/ldPHMPtmJBs
 W
 
 Week 7: https://youtu.be/KvzRs7fj4eI
+
+Week8 :https://youtu.be/1zIonxMDX5Y
